@@ -1,1 +1,1 @@
-https://www.myselfgrandy.tech
+https://grandayyyy.github.io/
